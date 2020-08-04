@@ -1,1 +1,1 @@
-# Mobile App Privacy Policy &amp; Terms of Service
+# indicadoresVE App Privacy Policy &amp; Terms of Service
